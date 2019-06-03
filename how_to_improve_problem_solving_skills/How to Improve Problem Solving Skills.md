@@ -1,1 +1,0 @@
-/Users/jyuan/apple/doc/vip/blog/programming/presentation/How to Improve Problem Solving Skills.md
